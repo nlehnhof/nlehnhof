@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @nlehnhof
+- 👀 I’m interested in aeronautics and engineering.
+- 🌱 I’m currently a student majoring in Mechanical Engineering.
+- 📫 How to reach me ... n.lehnhof01@gmail.com
